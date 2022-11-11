@@ -1,1 +1,1 @@
-# TrabajoFinal-Dise-o-de-instrumentos-digitales
+# TrabajoFinal-Diseno-de-instrumentos-digitales
